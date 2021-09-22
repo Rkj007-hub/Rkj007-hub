@@ -4,8 +4,9 @@
 - 💞️ I’m looking to collaborate on AI,script writing,making short films..
 - 📫  reach me through mail:
            jprahul15@gmail.com
+ View my blogs : https://rahul-rkj007.blogspot.com
 
 <!---
-Rkj007-hub/Rkj007-hub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Rkj007-hub/Rkj007-hub is a ✨ special ✨ repository becase its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
