@@ -17,7 +17,6 @@ Have a current blog in Blogger.com.
 Have profiles at various leading websites like GitHub ,stack overflow ,LinkedIn, Quora etc.
 I also have a long time vision of betterment of opportunities for the upcoming generations in our country.
 Have an idea to implement the future technologies and create job opportunities in India.
-see less
 
 JRK_007
 
