@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 12th ..
 - 💞️ I’m looking to collaborate on AI,script writing,making short films..
 - 📫  reach me through mail:
-           jprahul15@gmail.com
+           tomyblog007@gmail.com
  View my blogs : https://rahul-rkj007.blogspot.com
 Waiting to see IIT..!
 IIT is a love not just a Dream..!
