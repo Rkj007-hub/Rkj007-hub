@@ -12,7 +12,7 @@ Love to code for new idea's and to create contents, also a part of blogger.
 Never like to be among others in most of the situations ,love to be unique and have a feeling to seek unknown knowledge without hesitation from others for my betterment.
 I always want to be a leading personality and an good example among others and live as an example to others.
 Interested in knowing and learning new things ,also to identify and have a hand of helping others at any cause if possible.
-In Quora since 2019 has followers of 100 and views of about 41k.(since started creating blogs before 4 months).
+In Quora since 2019 has followers of 100 and views of about 62k.(since started creating blogs before 4 months).
 Have a current blog in Blogger.com.
 Have profiles at various leading websites like GitHub ,stack overflow ,LinkedIn, Quora etc.
 I also have a long time vision of betterment of opportunities for the upcoming generations in our country.
